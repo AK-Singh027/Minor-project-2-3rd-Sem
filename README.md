@@ -1,1 +1,0 @@
-# Minor-project-2-3rd-Sem
